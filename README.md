@@ -16,6 +16,17 @@ I hope I will be successful in life and make my teachers and parents proud.
 
 |**Subjects**|**Marks**|
 |:----------|:---------|
-|Mathematics| 80|
+|Mathematics| 77|
 |Physics| 82|
 |Chemistry| 85|
+
+**10th scorecard**
+
+|**Subjects**|**Marks**|
+|:----------|:---------|
+|Mathematics| 95|
+|Science| 93|
+|Social Studies| 96|
+|English| 96|
+|Hindi| 97|
+|Punjabi| 135|
