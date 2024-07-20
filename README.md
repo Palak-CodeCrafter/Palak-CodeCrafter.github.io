@@ -8,3 +8,5 @@ My vision is to grab knowledge from my teachers, my seniors and my Alumnii.
 I believe in simple living and high thinking 
 I hope after four I will be greatly groomed and will be able to achieve my goals.
 I hope I will be successful in life and make my teachers and parents proud.
+
+## Senior Secondary Education and Matriculation Education 
