@@ -1,4 +1,4 @@
-ABOUT ME
+
 I am student of Btech in CSE in Guru nanak Dev Engineering College.
 I am pursuing engineering in cse because i really like coding.
 I love to learn new things and tackle with challenging tasks
