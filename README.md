@@ -11,6 +11,8 @@ I hope after four I will be greatly groomed and will be able to achieve my goals
 I hope I will be successful in life and make my teachers and parents proud.
 
 ## Senior Secondary Education and Matriculation Education 
+**12th scorecard**
+
 |**Subjects**|**Marks**|
 |:----------|:---------|
 |Mathematics| 80|
