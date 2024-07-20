@@ -30,3 +30,6 @@ I hope I will be successful in life and make my teachers and parents proud.
 |English| 96|
 |Hindi| 97|
 |Punjabi| 135|
+
+### About Guru Nanak Dev Engineering College ###
+
