@@ -59,8 +59,11 @@ Everyone motivated us with their valuable speech.They share their experiences wi
 
 
 **1.** I am Sorry
+
 **2.** Please forgive me
+
 **3.** Thank you
+
 **4.** I love you
 
 Afer every mistake and lie we should be sorry to the god immediately. We can lie to everyone but we cannot lie to ourselves and God. We ourselves knows the truth behind our lie. As Newton’s third law of motion states that every action has an equal and opposite reaction, similarly what we give to the world and nature, we always receive the same thing in return.
